@@ -7,4 +7,3 @@
 ![2017학년도 2학기 프로젝트 최종 보고서-2516 정우열_3](https://user-images.githubusercontent.com/76677980/189707692-1bd1a1bc-0a0d-4d4b-99bf-250ba7100b6c.png)
 ![2017학년도 2학기 프로젝트 최종 보고서-2516 정우열_4](https://user-images.githubusercontent.com/76677980/189707696-eee93b6a-b3f6-44eb-b7be-def53924069b.png)
 ![2017학년도 2학기 프로젝트 최종 보고서-2516 정우열_5](https://user-images.githubusercontent.com/76677980/189707698-40a96513-3b29-46e9-87ab-4c67168c0a05.png)
-![2017학년도 2학기 프로젝트 최종 보고서-2516 정우열_5](https://user-images.githubusercontent.com/76677980/189707806-39858a49-8080-4bc7-b1b2-8db397d5fe9a.png)
